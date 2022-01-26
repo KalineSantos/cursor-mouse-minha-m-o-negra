@@ -1,1 +1,1 @@
-# cursor-mouse-minha-m-o-negra
+# cursor-mouse-minha-mão-negra
